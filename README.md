@@ -1,5 +1,3 @@
-Sure, below is your updated Privacy Policy including the new permissions:
-
 **Privacy Policy for Topics**
 **Last updated: 5/28/2023**
 
